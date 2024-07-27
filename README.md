@@ -1,0 +1,6 @@
+- Hola, soy Nott
+- Me gusta respirar
+- Soy Influencer
+- Soy colombiana
+- Dibujo
+- No se que mas decir
